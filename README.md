@@ -1,0 +1,2 @@
+fida para  mi es  la demostracion  de que  querer es poder  que  el que dice  no puedo es  porque realmente  no  quiere hacer las  cosas  ella en el dolor de su sufrimiento siempre saco  las energias  para pintar  sus sentimientos 
+cada  vez  que me quiero dar  por vencida recuerdo a frida  y me levanto con mas ganas  
